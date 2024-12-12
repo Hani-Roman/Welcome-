@@ -1,2 +1,2 @@
 # Welcome-
-ths is where is start
+ths is where it starts
